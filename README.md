@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Hakxoy
+- 👀 I’m interested in women
+- 🌱 I’m currently learning rizz
+- 💞️ I’m looking to collaborate on dating
+- 📫 How to reach me email
+- ⚡ Fun fact: I am 87 years old
